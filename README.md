@@ -108,11 +108,6 @@ Images :
 
 --------------
 
-[TEST Video](https://www.youtube.com/watch?v=nRC46lxEmUk)
-
-
---------------
-
 **UPDATE 6/10/2022**  NEW
 
 [DOWNLOAD](https://t.me/EVLF_DEVZ)
